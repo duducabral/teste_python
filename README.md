@@ -1,1 +1,2 @@
-Eduardo Cabral
+Eduardo Cabral 
+João Vitor Souza
